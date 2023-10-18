@@ -1,0 +1,1 @@
+šis ir mans pirmasi gits redzes vai sanaks
